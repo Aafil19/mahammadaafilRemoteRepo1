@@ -4,3 +4,5 @@ INFO5145 - Fanshawe
 
 Emil Scaria was here for the colab!
 
+Lets Go
+
