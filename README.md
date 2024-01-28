@@ -4,5 +4,5 @@ INFO5145 - Fanshawe
 
 Emil Scaria was here for the colab!
 
-Lets Go! Barca
+Lets Go! Barcelona and Fanshawe College
 
